@@ -1,1 +1,0 @@
-# zadanie10a
